@@ -1,1 +1,2 @@
-### Hi there 👋, My Name is Rico Ariyanto
+### Hi there 👋
+I'm Rico from Indonesia,
